@@ -8,7 +8,7 @@
 ### Since then I have worked in almost anything imaginable 🧑‍🔧 🧑‍🏭 👷  
 ### sometimes being exploided for working illegaly despite being underage 👶 
 ### Since my family was "poor" I had to make sure I worked if I wanted to have nice things as a kid. 
-### My mother thaught me that anything you do you must do it as best as you can and humbly let your results to speak for themselves.
+### My mother taught me that anything you do you must do it as best as you can and humbly let your results to speak for themselves.
 ---
 ### At 24 years old i made a drastic decision that changed thye course of my life 🛫
 ### I Chose to relocate back to Colombia and learn software programming. 🧑‍💼 💻
