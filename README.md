@@ -6,7 +6,7 @@
 ### From the age of 8 I began helping my mom cleaning homes 🏠.
 ### as I cleaned these big houses with my mom I would day dream of owning a big home too one day.
 ### Since then I have worked in almost anything imaginable 🧑‍🔧 🧑‍🏭 👷  
-### sometimes being exploided for working illegaly despite being underage 👶 
+### Many times being exploided to do hard labor for long hours because I worked illegaly and was underage 👶 
 ### Since my family was "poor" I had to make sure I worked if I wanted to have nice things as a kid. 
 ### My mother taught me that anything you do you must do it as best as you can and humbly let your results to speak for themselves.
 ---
